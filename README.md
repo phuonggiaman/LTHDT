@@ -1,1 +1,0 @@
-# lap1_lthdt
